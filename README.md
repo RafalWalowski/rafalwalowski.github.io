@@ -1,7 +1,7 @@
 # Rafał Wałowski
 
 ## Doświadczenie
- **Leclerck**\ 
+ **Leclerck**\
 od 2022
 
 **Columbus Energy**\
